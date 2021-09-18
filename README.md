@@ -1,0 +1,1 @@
+# 3d-tyt-cograyfa-soru-bankasi-2022-32
